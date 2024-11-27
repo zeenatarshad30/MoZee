@@ -2,7 +2,7 @@
 - **Date:** 02/07/2023  
 - **Location:** Aquatic Gallery, Science City, Ahmedabad 
 
-It was our second date, and you picked me up right at noon. You had come all the way from Baroda, wearing that dark-bluish tee with the zipper and white collars—you looked incredibly handsome 🙈🫠😍, and my heart skipped a beat the moment I saw you ❤️‍🔥. I couldn’t help but ask, "Where are we going?" and you, with that charming smile of yours, simply said, “It’s a surprise 🙈.”
+It was our second date, and you picked me up right at noon. You had come all the way from Baroda, wearing that black tee I gifted you on your birthday 🎂—you looked incredibly handsome 🙈🫠😍, and my heart skipped a beat the moment I saw you ❤️‍🔥. I couldn’t help but ask, "Where are we going?" and you, with that charming smile of yours, simply said, “It’s a surprise 🙈.”
 
 You took me to Science City, to the Aquatic Gallery, and I couldn’t believe it—you remembered how I once told you that watching fish brings a calmness to my soul. Knowing you planned the date around something so simple yet meaningful to me made my heart swell with joy 🙈💋.
 
